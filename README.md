@@ -1,1 +1,1 @@
-the complete project will be uploaded on 9/Aug/2017
+the final completed project file is finalproject.doc kindly consider this one
